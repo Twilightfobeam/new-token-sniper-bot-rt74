@@ -1,4 +1,4 @@
-# 
+# custom new token sniper bot | private-RPC-nodes + new-token-detection offers the most advanced new token sniper bot, with private-RPC-nodes and new-token-detection. Ideal for
 
 
 
